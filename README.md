@@ -1,6 +1,6 @@
 Nevermind
 
-Dennis Lloyd
+Dennis Lloy
 
 What if I left and it made no sense
 And you tell your friends
